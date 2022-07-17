@@ -14,3 +14,5 @@ AFHGHHGHGHHHHH - conor
 I like candy and pear juice - Pear juice & candy man
 
 hey guys again -j ade
+
+hi gfuys im stella gaming - stella :DD (wonderhoy)
